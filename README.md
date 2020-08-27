@@ -1,4 +1,4 @@
-永久地址：https://wsww.91avporn.com 最新地址：https://www.avpornx1.com
+永久地址：https://www.91avporn.com 最新地址：https://www.avpornx1.com
 
 当你发现91avporn地址不能正常访问时，打开此发布页即可获取本站最新可用地址
 
